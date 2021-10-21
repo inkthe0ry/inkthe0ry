@@ -1,4 +1,5 @@
-**about me** - echo/ellis/eris, 17, it/he (+neos,) aroacespec lesbian, tme, white, adhd + autism + unlisted 
+**about me** - echo/ellis/eris, 17, it/he (+neos,) aroacespec lesbian, tme, white, adhd + autism + unlisted (still speculating about stuff so i'll just leave them unlisted. just be
+patient w me.)
 
 **dni** - aspec exclusionist, proship, vincian flag user, mspec 'lesbian' supporter, cishet and neurotypical, white with an asian name, het vbs shipper /srs, fans of the following: 
 enstars, aot, danganronpa, mcyt (you know the ones)
