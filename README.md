@@ -3,11 +3,11 @@ patient w me.)
 
 **dni** - aspec exclusionist, proship, vincian flag user, mspec 'lesbian' supporter, cishet and neurotypical, white with an asian name, het vbs shipper /srs, fans of the following: 
 
-enstars, aot, danganronpa, mcyt (you know the ones,) genshin fandom is on thin ice, kaelucers are going to hell 
+fan of - enstars (current mutuals ok,) mcyt (you know the ones), aot, danganronpa. kaelucers are going to hell and i hate genshin 
 
 also general dfi criteria
 
-**interests** - **project sekai, cookie run, deltarune/undertale,** fire emblem, splatoon, milgram, the sims, identity v (but not really)
+**interests** - **project sekai, deltarune/undertale,** fire emblem, splatoon, milgram, the sims, cookie run, identity v (but not really)
 
 **kinlist** - kohane azusawa, ena shinonome, nene kusanagi, emma woods, *susie,* kagamine rin, minako arisato, pearl houzuki
 
